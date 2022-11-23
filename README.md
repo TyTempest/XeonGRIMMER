@@ -1,1 +1,1 @@
-I'm just learning.
+Currently studying
